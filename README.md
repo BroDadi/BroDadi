@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @BroDadi
 - 👀 I’m interested in не интерестед пока ничё
-- 🌱 I’m currently learning js 
+- 🌱 I’m currently learning js and unityyy
 - 💞️ I’m looking to collaborate on ъ
 - 📫 How to reach me врврфварфварфвапр
 
